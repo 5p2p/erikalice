@@ -44,7 +44,7 @@ Per regalare la quota desiderata potete andare direttamente in agenzia o, chi vi
 
 ## Oltre la festa
 
-Sempre lungo il nostro cammino insieme abbiamo avuto la fortuna di incontrare Francesco e Alessandra che prima di noi hanno condiviso stesso concetto di famiglia. Colpiti dall'entusiasmo e dalla gioia con cui portano avanti il progetto [5pani2pesci](http://5p2p.it/), nonché dalla qualità dei lavori finora prodotti, abbiamo deciso di affidarci a loro per le riprese fotografiche dell'evento. La nostra speranza è che questo messaggio a noi caro possa arrivarvi per donarvi gioia ed energia. 
+Sempre lungo il nostro cammino insieme abbiamo avuto la fortuna di incontrare Francesco e Alessandra che prima di noi hanno condiviso lo stesso concetto di famiglia. Colpiti dall'entusiasmo e dalla gioia con cui portano avanti il progetto [5pani2pesci](http://5p2p.it/), nonché dalla qualità dei lavori finora prodotti, abbiamo deciso di affidarci a loro per le riprese fotografiche dell'evento. La nostra speranza è che questo messaggio a noi caro possa arrivarvi per donarvi gioia ed energia. 
 
 
 ## Contatti
